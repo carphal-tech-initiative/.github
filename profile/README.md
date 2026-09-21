@@ -5,5 +5,5 @@
  * **Pharmaceutical Technology** - Investigating quantitative modeling, bioprocesses and microbial systems for formulation.
  * ## Contact
  * * **Email:**johnmalsawmdawngzela@shooliniuniversity.com
-   
+ * * **Alternate Email:**johnmalsawmdawngzela1@gmail.com  
  
